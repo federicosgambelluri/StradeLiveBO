@@ -15,6 +15,7 @@ Preferite ricevere solo le informazioni specifiche sulla tangenziale di Bologna?
 • Nessuna distrazione: solo le news che contano per i tuoi spostamenti quotidiani
 
 👉 Iscriviti a Strade Bologna Live: https://t.me/stradelivebo
+
 👉 Iscriviti a Tangenziale Bologna Live: https://t.me/tangelivebo
 
 Resta informato, muoviti in sicurezza e condividi con chiunque possa aver bisogno di queste notizie!
